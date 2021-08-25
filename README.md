@@ -1,1 +1,1 @@
-#Choice Coin White Paper
+# Choice Coin White Paper
